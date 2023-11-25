@@ -6,7 +6,7 @@
 </h2>
 
 <p align="center">
-  <img src="https://graph.org/file/9e67f394041b30e47628e.jpg">
+  <img src="https://t.me/FallenDirectory/10">
 </p>
 # Features Of Fallen-views TOOLS ❤️
 
